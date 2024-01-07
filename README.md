@@ -1,0 +1,1 @@
+# Say-salAnalizOdev5-SonluFarklar
